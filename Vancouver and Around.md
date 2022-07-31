@@ -1,9 +1,8 @@
-
+# It's possible to visit ONLY A FEW PLACES well/thoroughly in a day
 # Google Map link
 
 - Some Good places to visit in and around Vancouver
     - https://www.google.com/maps/d/u/0/edit?mid=1BImQTUUeptvSew_8LNJAe8JeDjYqos4&usp=sharing
-
 
 
 ## Places
