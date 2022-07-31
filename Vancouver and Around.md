@@ -28,6 +28,9 @@ All places below are shown in the map above.
 	- Lynn Canyon Suspension Bridge (free but small). Beautiful nature and park for hiking (little more difficult than a simple walk)
 
 
+- Lonsdale Quay
+    - If you spend time in Vanocouver around Canada Place, you may take the ferry/seabus to go to Lonsdale Quay. Good place to sit and the view of the harbour is good. There's also a park nearby: Waterfront Park.
+
 - Drive to a high place and look at Vancouver from above:
 	- On the way to Cypress Mountain Parking (free parking before the last one), there are some viewpoints
 
@@ -41,3 +44,5 @@ All places below are shown in the map above.
 	- Whytecliff Park
 	- Stanley Park (Third Beach) - popular buy I have not seen everything
 	- Barnet Marine Park (near Burnaby)
+    - Iona Terminus (4 Km into the sea - no mobile connection there) but beautiful walk
+
